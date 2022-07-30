@@ -1,1 +1,1 @@
-[Linkedin](http://www.linkedin.com/in/annamolnarterris)
+[Github](https://github.com/AnnaMTerris)
